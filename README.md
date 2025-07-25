@@ -20,7 +20,7 @@ Feel free to explore, download, or reach out if you'd like to connect or collabo
 ## 📬 Contact
 
 Want to say hi or ask for a tailored version of my CV?  
-Reach me at: `forensiq.sentinel@outlook.com` or via [LinkedIn](www.linkedin.com/in/dragos-cia5)
+Reach me at: `forensiq.sentinel@outlook.com` or via [LinkedIn] www.linkedin.com/in/dragos-cia5
 
 ---
 
